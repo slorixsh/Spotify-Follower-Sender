@@ -8,4 +8,8 @@
 ### Note
 Just Use For Educational Purposes, Account problems arising from this File are not my responsibility.
 
-https://imgur.com/B48310i
+<div align="center">
+   <a href="https://github.com/slorixsh">
+      <img src="https://imgur.com/B48310i">
+   </a>
+</div>
