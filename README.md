@@ -8,4 +8,4 @@
 ### Note
 Just Use For Educational Purposes, Account problems arising from this File are not my responsibility.
 
-<img src="https://slorien.bakire-avcisi.online/bakireler/idollerim/f1vXuSDK"/>
+<img src="https://cdn.upload.systems/uploads/f1vXuSDK.gif"/>
