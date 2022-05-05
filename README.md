@@ -8,4 +8,4 @@
 ### Note
 Just Use For Educational Purposes, Account problems arising from this File are not my responsibility.
 
-<img src="https://imgur.com/B48310i"/>
+<img src="https://images-ext-2.discordapp.net/external/1-2viG-x02BT4AGaKl3eDQXFKMABoYjaGEFrCxkG85U/https/i.imgur.com/B48310i.mp4"/>
